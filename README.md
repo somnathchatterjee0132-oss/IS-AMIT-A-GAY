@@ -1,1 +1,1 @@
-YES AMIT IS A GAY WE HAVE CONFIRMED IT
+amit is a good guy
